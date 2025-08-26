@@ -1,2 +1,1 @@
-# primeiro_reposit-rio
-criei minha primeira pasta
+![Descrição do GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNm9tMHB0NXJtYngydTBkN2YycnJpbDF6YjRpdHFlMjRwODZ1b3Y3NSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/udS4WxeXKkzoFkKR2z/giphy.gif)
