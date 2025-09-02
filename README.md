@@ -1,1 +1,1 @@
-![Descrição do GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNm9tMHB0NXJtYngydTBkN2YycnJpbDF6YjRpdHFlMjRwODZ1b3Y3NSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/udS4WxeXKkzoFkKR2z/giphy.gif)
+![Descrição do GIF](![5f2b4c6fe1bf398269174b03e717a1a1](https://github.com/user-attachments/assets/b319b0f6-62e7-4145-adbb-3ef9aa361228)
